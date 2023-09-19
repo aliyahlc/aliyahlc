@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aliyah Capshaw
-- 👀 I’m interested in ...Anything that has to do with computers.
+- 👀 I’m interested in ...Anything that has to do with computers I love typing helping others and learning new skills.
 - 🌱 I’m currently learning ... Coding 
 - 💞️ I’m looking to collaborate on ...I am not sure yet 
 - 📫 How to reach me ... Aliyahcapshaw21@gmail.com
